@@ -1,1 +1,1 @@
-https://yyf.mubilop.com/file/b64aae76/game.sb3
+https://yyf.mubilop.com/file/d45b84a3/game.sb3
